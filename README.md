@@ -1,0 +1,2 @@
+- 👋 Oi, I'm @SrKiraBR
+- 🍃 Começando como desenvolvedor.
